@@ -1,1 +1,1 @@
-Delayu labu po infe primo schas
+Delayu labu po infe primo 
